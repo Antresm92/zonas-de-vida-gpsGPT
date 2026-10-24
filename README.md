@@ -1,0 +1,1 @@
+# zonas-de-vida-gpsGPT
